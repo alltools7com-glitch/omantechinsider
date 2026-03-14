@@ -1,0 +1,2 @@
+# omantechinsider
+crypto mining 
